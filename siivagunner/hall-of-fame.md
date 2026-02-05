@@ -45,7 +45,8 @@ My favourite Siivagunner songs in rough chronological order.
 * Moonlight Serendipity BEST <https://www.youtube.com/watch?v=9jq0X2CF-vA>
 * Temporal Tower corridors of time BEST <https://www.youtube.com/watch?v=khrzAs223MI>
 * Plok Third Sanctuary BEST <https://www.youtube.com/watch?v=aw3A6mf_07s>
-* Ashens Toy Violin <https://www.youtube.com/watch?v=IfqNJDiIkCQ>
+* Ashens Toy Violin BEST <https://www.youtube.com/watch?v=IfqNJDiIkCQ>
+* Bird Up Dynablade BEST <https://www.youtube.com/watch?v=Q426mVC40vU>
 
 * Visuals Jubeat <https://www.youtube.com/watch?v=D4EbPEguCyM>
 * Shop Visuals <https://www.youtube.com/watch?v=HEZV4tVqHuQ>
@@ -57,7 +58,6 @@ My favourite Siivagunner songs in rough chronological order.
 * Time travel Mt Dedede <https://www.youtube.com/watch?v=E9vMny_F1l8>
 * Slateport Goldenrod <https://www.youtube.com/watch?v=up4vgYO6NMw>
 * Fusion Collab <https://www.youtube.com/watch?v=lPea6vvu0J0>
-* Meme orgy <https://www.youtube.com/watch?v=Q426mVC40vU>
 * King for a day <https://www.youtube.com/watch?v=L13On3umQS0>
 * Meme team <https://www.youtube.com/watch?v=w5x7956gchI>
 * Tower of Heaven Bomb <https://www.youtube.com/watch?v=E80MsMud5tU>
