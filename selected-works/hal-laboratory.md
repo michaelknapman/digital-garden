@@ -10,6 +10,8 @@ Therefore Jun has more chance to shine in the spotlight.
 | --- | --- | --- | --- |
 | Green Greens | Kirby's Dream Land | 1992 | Jun Ishikawa |
 | Yogurt Yard | Kirby's Adventure | 1993 | Hirokazu Ando |
+| Coo's Theme | Kirby's Dream Land 2 | 1995 | Tadashi Ikegami |
+| Dark Castle | Kirby's Dream Land 2 | 1995 | Tadashi Ikegami |
 | Run, Kirby, Run! | Kirby Super Star | 1996 | Jun Ishikawa |
 | Meta Knight's Revenge | Kirby Super Star | 1996 | Jun Ishikawa |
 | Ripple Field 1 | Kirby's Dream Land 3 | 1997 | Jun Ishikawa |
