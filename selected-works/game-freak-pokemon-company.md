@@ -11,6 +11,7 @@ Selected works from Game Freak and The Pokémon Company in chronological order.
 | Sky Tower | Pokemon Mystery Dungeon Red Rescue Team | 2005 | Uncredited |
 | Capture On! Tutorial | Pokemon Ranger | 2006 | Uncredited |
 | Route 216 | Pokemon Diamond | 2006 | Go Ichinose |
+| Waterfall Colosseum | Pokemon Battle Revolution | 2006 | Tsukasa Tawada |
 | Temporal Tower | Pokemon Mystery Dungeon Explorers of Time | 2007 | Uncredited |
 | Barren Valley | Pokemon Mystery Dungeon Explorers of Sky | 2009 | Uncredited |
 | Dragonsprial Tower | Pokemon Black | 2010 | Shota Kageyama |
